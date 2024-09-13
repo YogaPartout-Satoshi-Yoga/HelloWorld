@@ -1,2 +1,5 @@
 # HelloWorld
 That is the TOC if one might say.  This is where everything started back in 2008
+The title: YogaPartout-Satoshi.Yoga means that there are two web sites being combined.  One is in french (yogapartout.com) and the other is in english (satoshi.yoga).  We are a non profit organisation because the previous owner (Daniel Gauthier) wanted to give back to the world what the world has given him over the years.
+By becoming visible on the English side of the world, it is now possible to offer what made us popular in the first place: WebCasts. We call it the 'UnConference'.  All the details, including our modus operandi can be found at this url: https://satoshi.yoga/Radio.  Yes, there is a minimal fee of 75$ CA that we ask for conducting our interviews.  As of april 2024, we made 143 interviews. Quite an accomplishment, isn't it!  Here are our coordinates to reach us: YogaPartout-Satoshi.Yoga - 6300 Avenue Auteuil, Suite 505, Brossard, QC, Canada, J4ZP2 In closing, you may want to cunsult this url as we are looking for guest speakers: https://satoshi.yoga/Call+for+Speakers+-+The+Satoshi-Yoga+UnConference
+Looking forward
